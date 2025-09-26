@@ -8,3 +8,7 @@
 - Circle: P = 2πR
 - Rectangle: P = 2a + 2b
 - Square: P = 4a
+
+## CMAJSDVMLDVS?S?S?S? !! !!! >CX?VCSDV LDSL?
+- KVcvms: dasdv?S = CaCsacKCAk * dafk
+- SDKv: fvvaMDA = vcANXXAsax - XDD
